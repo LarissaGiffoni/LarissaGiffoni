@@ -1,2 +1,2 @@
 # Linkedin
-https://www.linkedin.com/in/larissa-giffoni-347ba9361/
+[LinkedIn](https://www.linkedin.com/in/larissa-giffoni-347ba9361/) 
