@@ -1,4 +1,4 @@
-# 👩‍💻 Larissa Giffoni Lacerda
+# 👩‍💻 Larissa Moreira de Alencar Giffoni Lacerda
 
 🎓 Cursando Engenharia de Software no CEUB  
 
