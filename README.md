@@ -5,7 +5,7 @@
 💼 [LinkedIn](https://www.linkedin.com/in/larissa-giffoni-347ba9361/)  
 ✉️ larissa.giffoni18@gmail.com
 
-<div align="center">![Uploading High Tech Computer GIF by Matthew Butler.gif…]()
+<div align="center">![Uploading High Tech Computer GIF by Matthew Butler.gif…]()>
 
   <img src="LINK_GERADO_OU_NOME_DO_ARQUIVO" alt="Banner Matrix" width="100%">
 </div>
